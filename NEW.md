@@ -1,1 +1,0 @@
-Gandharviki Giridhar Das
